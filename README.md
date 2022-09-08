@@ -12,7 +12,7 @@
 - 🌱 Actualmente estoy haciendo trabajos de desarrollo web!  
   
 
-- ❓ Si tienes alguna preguntas no dudes en consultarme  
+- ❓ Si tienes alguna pregunta no dudes en consultarme  
   
 
 - ⚡ Dato: Estoy aprendiendo ingles😜  
